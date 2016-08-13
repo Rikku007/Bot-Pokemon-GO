@@ -1,0 +1,2 @@
+# Bot-Pokemon-GO
+โปรกูเอง
